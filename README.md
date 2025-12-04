@@ -8,7 +8,7 @@
   🔗 GitHub: [@devmariliafeitosa](https://github.com/devmariliafeitosa)
 
 - **Lorhane Angélica Gonçalves**  
-  🔗 GitHub: [@devmariliafeitosa](https://github.com/devmariliafeitosa)
+  🔗 GitHub: [@lorhane553](https://github.com/lorhane553)
 
 ---
 
